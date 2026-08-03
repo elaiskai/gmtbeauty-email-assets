@@ -1,0 +1,1 @@
+# gmtbeauty-email-assets
